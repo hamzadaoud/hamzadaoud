@@ -1,5 +1,5 @@
 ﻿# 💫 About Me:
-I love making making video games 
+I love making video games 
 
 
 ## 🌐 Socials:
